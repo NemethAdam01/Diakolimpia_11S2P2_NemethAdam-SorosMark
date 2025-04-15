@@ -1,1 +1,1 @@
-# Di-kolimpia_11S2p2_NemethAdam-SorosMark
+# Diakolimpia_11S2p2_NemethAdam-SorosMark
